@@ -2,6 +2,6 @@
 
 - Jome Favourite
 - Oyebode Johnson
-- Ejiwale David
+- Ejiwale David Ayodeji
 - Opatola Mistura
 - Kalejaiye Nifemi
